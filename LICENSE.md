@@ -1,4 +1,4 @@
-
+one tap ultimate Script offers the most advanced one tap Script, with undetectable and unlimited stamina. Perfect for dominating any match.
 
 
 
